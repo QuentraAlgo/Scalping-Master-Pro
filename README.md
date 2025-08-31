@@ -1,4 +1,4 @@
-# 🚀 Scalping Master Pro [QuentraAlgo]
+# 🚀 Scalping Master Pro
 
 <div align="center">
 
